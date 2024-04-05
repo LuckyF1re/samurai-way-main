@@ -1,4 +1,4 @@
-# May the Force be with you, Самурай! 
+# May the Force be with you! 
 
 
 
